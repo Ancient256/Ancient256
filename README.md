@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ancient256
+- 👋 Hi, I’m @Ancient256  others can also call me Alex... my real name will be revealed only once I have a job..
 - 👀 I’m interested in ... nothing
 - 🌱 I’m currently learning ... game dev
 - 💞️ I’m looking to collaborate on ... idk
